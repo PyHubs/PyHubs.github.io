@@ -17,8 +17,7 @@ Good Quality YouTuber, [grand dude 😎](https://www.youtube.com/channel/UCrvEfy
 
 Inactive Youtuber, [♠️Ace of spades♠️](https://www.youtube.com/channel/UCncGeOKe8xoOzYOXxspuz4g)
 
-# Check out my channel
-https://www.youtube.com/channel/UCReO0uCesJkcwl5xxxXhcRQ
+[# Check out my channel](https://www.youtube.com/channel/UCReO0uCesJkcwl5xxxXhcRQ)
 
 ## See the Saftey Car
 <iframe width="560" height="315" src="https://www.youtube.com/embed/QJiHuG4LAfg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
