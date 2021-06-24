@@ -2,6 +2,9 @@ theme: jekyll-theme-cayman
 title: Cool RR3 Guy
 description: Quality RR3 and FRL content
 
+plugins:
+  - jekyll-readme-index
+
 kramdown:
   syntax_highlighter_opts:
     disable : true
