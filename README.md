@@ -1,4 +1,3 @@
-# Cool RR3 Guy
 Hello everyone and welcome to my channel site!
 
 ## Who is "Cool RR3 Guy"
