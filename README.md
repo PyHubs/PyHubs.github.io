@@ -10,7 +10,9 @@ Cool RR3 Guy is a new YouTuber who makes and has *quality Real Racing 3 / FR Leg
 
 ## Reviews
 > Epic keep up the great work
+
 Good friend and YouTuber, [grand dude 😎](https://www.youtube.com/channel/UCrvEfyiRJ3O11mZ5DGXtYuQ)
 
 > Good quality content, keep it up
+
 On GCHAT Good friend And inactive Youtuber, [♠️Ace of spades♠️](https://www.youtube.com/channel/UCncGeOKe8xoOzYOXxspuz4g)
