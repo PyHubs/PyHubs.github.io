@@ -1,3 +1,5 @@
+# ALERT : Cool RR3 Guy is on vacation til august !!
+
 # Cool RR3 Guy
 Hello everyone and welcome to my channel site!
 
